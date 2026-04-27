@@ -1,4 +1,4 @@
-
+evade automatic Scripts offers the most advanced evade Script, with infinite resources and custom skins. Perfect for dominating any match.
 
 
 
